@@ -1,4 +1,4 @@
-# Privacy Policy / 隐私政策
+ # Privacy Policy / 隐私政策
 
 Last updated / 最后更新：2026-02-23
 
